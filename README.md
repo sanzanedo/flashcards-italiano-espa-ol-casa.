@@ -1,1 +1,1 @@
-# flashcards-italiano-espa-ol-casa.
+# flashcards-italiano-es
